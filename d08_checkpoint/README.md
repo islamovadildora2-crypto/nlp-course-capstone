@@ -1,1 +1,1 @@
-8- amaliy
+7- amaliy
