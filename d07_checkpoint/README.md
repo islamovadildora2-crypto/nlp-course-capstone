@@ -1,1 +1,1 @@
-7-amaliy
+6-amaliy
